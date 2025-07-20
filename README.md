@@ -8,7 +8,7 @@
 
 💡 Interested in: Open Source Projects, App Development, and Cybersecurity
 
-💬 Let's connect: https://www.linkedin.com/in/parisemohankumar
+💬 Let's connect: https://www.linkedin.com/in/mohankumar-parise/
 
 🌟 I believe in the power of code to solve real-world problems and I'm passionate about building impactful projects. Check out my repositories to see what I'm working on!
 
